@@ -1,0 +1,3 @@
+- Hi, I’m @OliverZolSza -> Olivér Zoltán Szabó  👋
+- I’m currently learning blender, android, inkscape, GIMP, Fl Studio, HTML+CSS+JS, Russian, python and more!
+- To reach me email:  oliverszabospare@proton.me    -    Only for legal reasons, rarely checked!
